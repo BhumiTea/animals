@@ -8,4 +8,5 @@ Technically, birds also probably fall under this category as well. Feathered rep
 ![image](https://user-images.githubusercontent.com/72111389/95711950-a7450980-0c18-11eb-8e63-fcfcc26640a8.png)
 
 Here is the link explaining why petting birds at specific locations are not ok.
-!https://bird-paradise.biz/lets-talk-about-the-birds-the-bees-with-birds/
+
+https://bird-paradise.biz/lets-talk-about-the-birds-the-bees-with-birds/
