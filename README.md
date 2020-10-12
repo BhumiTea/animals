@@ -6,5 +6,6 @@ Many pets are mammalian because that is simply the type of animals that we find 
 # Reptiles
 Technically, birds also probably fall under this category as well. Feathered reptilians and all. Snakes of all varieties have the power to be terrifying but i find them cute mostly. I have debated my thoughts on getting a small snake but I need reciprocation in relationships and to be able to interact with them often. In fact, this is also why I am a bit averse torwards birds. They give a lot of affection and bond strongly, but you can only really pet them on the head safely for reasons that are uncomfortable.
 ![image](https://user-images.githubusercontent.com/72111389/95711950-a7450980-0c18-11eb-8e63-fcfcc26640a8.png)
-Here is the link explaining why petting birds at specific locations are not ok.
 
+Here is the link explaining why petting birds at specific locations are not ok.
+!https://bird-paradise.biz/lets-talk-about-the-birds-the-bees-with-birds/
